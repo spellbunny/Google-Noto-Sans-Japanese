@@ -1,1 +1,1 @@
-I love :ramen:, :pizza: and :learning new things:.
+I love :ramen:, :pizza: and eating.
